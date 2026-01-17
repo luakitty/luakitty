@@ -1,4 +1,4 @@
-# 💫 ( mrreowr :3 ) About Me:
+# 💫 mrreowr :3
 ## hi :) im kitty
 
 
