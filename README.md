@@ -1,5 +1,5 @@
 # 💫 ( mrreowr :3 ) About Me:
-## hi :) im kitty<br>ima luau coder
+## hi :) im kitty
 
 
 # 💻 Skills:
